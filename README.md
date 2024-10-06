@@ -1,0 +1,1 @@
+# lgs-beceri-temelli-matematik-32
